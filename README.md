@@ -67,3 +67,19 @@ Available for paid consultancy, research, and remote assignments in:
 **Aynalem Woldargay**
 
 *Research | Planning | Monitoring & Evaluation | Performance Management* 
+
+**Find Me for Professional Opportunities**
+
+**Available for paid consultancy, research, monitoring and evaluation, and performance management assignments.**
+
+GitHub Portfolio: https://github.com/aynalemwaregay-tech/research-evaluation-portfolio
+
+Kolabtree: https://www.kolabtree.com/
+
+Upwork: https://www.upwork.com/
+
+ORCID: https://orcid.org/0000-0003-3812-2911
+
+Professional Website: https://sites.google.com/view/aynalem-woldargay-professional/home
+
+Services: Research Support | Monitoring & Evaluation | Performance Assessment | Indicator Development | Data Analysis | Reporting | Strategy and Change Management
